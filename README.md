@@ -1,0 +1,2 @@
+# IT-Support
+My experience as a Computer Technician for over 10 years has prepared me well for the job. I hope you consider me for one of these key positions in your company.   May I meet you in person to talk more about this job and how I can fill it? I’m available to meet at your convenience any weekday. Please phone me at (678) 428-4510. If you’d like to talk further. Thank you for your time reading this cover letter and over my resume.  Sincerely,  Dominic R. Walton
